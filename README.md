@@ -1,3 +1,3 @@
-# Te-Quiro
-The way l become is just unbelievable. 
-What type of magic do u have? 
+Brojla Yezzeha khw, It's time to move on 
+ 
+
